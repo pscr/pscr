@@ -1,0 +1,1 @@
+This is what remains of a great and powerful monarch.
